@@ -1,2 +1,4 @@
 # My-first
-Just starting offf
+Just starting off
+
+I am new to this, be gentle
